@@ -1,3 +1,3 @@
-BUSD Crops Farmers Fork
+Paradise Strong Miner
+Busd Crops Farmers Fork
 
-Paradise-Strong
